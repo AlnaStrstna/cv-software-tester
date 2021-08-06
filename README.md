@@ -1,1 +1,1 @@
-# https://github-AlnaStrstna.github.io/rsschool-cv/cv
+# https://github-AlnaStrstna.github.io/cv-software-tester/cv
